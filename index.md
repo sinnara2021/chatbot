@@ -6,7 +6,7 @@
 ![](https://cdn.pixabay.com/photo/2014/04/03/11/55/robot-312566_960_720.png){:width="200" height="300"}
 
 
-###  <span style="color:red">Red Text👸 이수미 강의문의 :   </span>            메일주소:                    희망강의:                  강의페이: 
+###  <span style="color:red">Red Text    👸 이수미 강의문의 :   </span>            메일주소:                    희망강의:                  강의페이: 
 
 ### 👩‍🦰 윤수경  ★강의문의:010-6830-7463    ★메일주소:tlsskfk09@gmail.com   ★희망강의:메이커프로젝트   
  
